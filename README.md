@@ -7,7 +7,7 @@ It serves as a central hub for organizing my daily content across multiple platf
 
 🌐 Website: https://bubuverse.fun
 
-🛡 Guild: https://bubuverse.fun/guild/mtn
+🛡 Guild: https://bubuverse.fun/guild/ntn
 
 🧿 Referral: https://bubuverse.fun/?ref=Aho8Z4QbwsQig5TquKsNElsy2XANGp8bbYzPuH+2owp
 
